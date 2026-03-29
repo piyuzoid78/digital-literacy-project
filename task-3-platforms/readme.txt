@@ -1,1 +1,1 @@
-
+In this task, I used HackerRank to solve a beginner-level coding problem, which helped me understand basic programming concepts and improve my problem-solving skills. I also created a Google Form titled “Digital Literacy Awareness Quiz” with five questions, including multiple choice and short answer types. This helped me learn how to collect and analyze responses using digital tools. These platforms will be useful in my academics by enhancing my coding abilities and enabling collaboration and data collection.
