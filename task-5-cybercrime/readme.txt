@@ -1,1 +1,1 @@
-
+While researching cybercrime, I was surprised to learn how common phishing attacks are and how easily people can become victims. Even a small mistake like clicking on a fake link can lead to serious consequences. This task made me more aware of online threats, and I will be more careful while browsing the internet. I will also avoid sharing personal information and always verify links before clicking on them.
