@@ -1,1 +1,1 @@
-
+In this task, I created my profiles on GitHub, LinkedIn, and Stack Overflow. GitHub is used to manage and showcase coding projects, while LinkedIn helps in building a professional network and connecting with industry professionals. Stack Overflow is a platform where developers can ask questions, share knowledge, and solve programming-related problems. Over the next four years, I plan to actively use these platforms to improve my technical skills, build projects, participate in discussions, and learn from the developer community.
