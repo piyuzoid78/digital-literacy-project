@@ -1,1 +1,1 @@
-
+Poor digital communication can lead to misunderstandings and negative impressions. For example, sending an informal or unclear email to a professor may result in miscommunication or rejection. This can be avoided by using proper email structure, polite language, and a clear subject line. Following email etiquette helps in maintaining professionalism and building good relationships.
